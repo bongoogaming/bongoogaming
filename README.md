@@ -1,3 +1,6 @@
-Hi, i do stuff.
-I don't know what i'll do on here.. Maybe later, you can check this again to see what changed here! (Don't expect this to update much)
-I mainly make games on Roblox, as you should know
+# Hello!
+- I make games on a platform called [Roblox](https://www.roblox.com/).
+- However, i'm ***not*** good with coding, like at all.
+- I mostly don't do anything on here, except for reading and downloading repos.
+
+### You can find my roblox account [here.](https://www.roblox.com/users/1216384256/profile)
