@@ -15,4 +15,4 @@
 
 
 ### Most of my "64" games *(you might be looking for them??)* are on [my group](https://www.roblox.com/communities/8251626/The-bongo-group#!/about).
-#### If you wanna find the guilded community for said group *(we're still working on discord)*, you can go to it [here](https://www.guilded.gg/i/k5rJ0WWp).
+#### If you wanna find the guilded community for said group, you can go to it [through this link](https://www.guilded.gg/i/k5rJ0WWp).
